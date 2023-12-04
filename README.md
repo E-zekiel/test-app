@@ -2,31 +2,4 @@
 an app to test the stats
 
 make change on main branch
-asd
-test
-zzzzzasdaasdaasdaswqewqesas 
-wqeqwewsasasdwewqeqwewqsasdsa
-qweasdasssqwqwasdsadqewqwqewqewqe
-qwe qweqweasqwewqessassa
-qwe asssassa
-test
-test 2
-test 3
-qwe
-asds
-test 4
-wqewq
-wqewq
-sadad
-test 2
-asasdsa
-qwewqeqwewqewqeqwe
-wqew
-qwewqe
-test 6
-test 5
-test 7
-test 8
-test 7
-test 9
-test 10
+test1
