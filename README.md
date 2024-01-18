@@ -10,3 +10,12 @@ test 5
 test 6
 test 7
 test 8
+
+I met the man on the moon
+On the moon, I heard him saying
+I met the man on the moon
+On the moon, we'll be okay, yeah
+I met the man on the moon
+On the moon, I heard him saying
+I met the man on the moon
+On the moon, we'll be okay, yeah
