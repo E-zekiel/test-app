@@ -10,3 +10,12 @@ test 5
 test 6
 test 7
 test 8
+
+She told me, "Don't worry
+About it"
+She told me, "Don't worry
+No more"
+We both know we can't go
+Without it
+She told me, "You'll never
+Be alo-oh-oh-ooh"
