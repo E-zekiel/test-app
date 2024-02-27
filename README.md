@@ -20,3 +20,8 @@ Ain't no way that I can leave you stranded
 'Cause you ain’t ever left me empty-handed
 And you know that I know that I can't live without you
 So, baby, stay
+
+I do the same thing I told you that I never would
+I told you I'd change, even when I knew I never could
+I know that I can’t find nobody else as good as you
+I need you to stay, need you to stay, hey (Oh)
