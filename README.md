@@ -59,3 +59,8 @@ I met the man on the moon
 On the moon, I heard him saying
 I met the man on the moon
 On the moon, we'll be okay, yeah
+
+christmastime is here
+families drawing near
+oh, that we could always see
+such spirit through the year
