@@ -50,3 +50,12 @@ But at least we'll both be beautiful
 And stay forever young
 This I know, uh
 This I know
+
+I met the man on the moon
+On the moon, I heard him saying
+I met the man on the moon
+On the moon, we'll be okay, yeah
+I met the man on the moon
+On the moon, I heard him saying
+I met the man on the moon
+On the moon, we'll be okay, yeah
