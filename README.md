@@ -32,3 +32,12 @@ But I love it, oh
 I can't feel my face when I'm with you
 But I love it
 But I love it, oh
+
+She told me, "Don't worry
+About it"
+She told me, "Don't worry
+No more"
+We both know we can't go
+Without it
+She told me, "You'll never
+Be alo-oh-oh-ooh"
