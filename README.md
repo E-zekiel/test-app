@@ -64,3 +64,8 @@ christmastime is here
 families drawing near
 oh, that we could always see
 such spirit through the year
+
+sleigh bells in the air
+beauty everywhere
+yuletide by the fireside
+and joyful memories there
