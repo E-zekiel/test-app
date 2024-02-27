@@ -25,3 +25,10 @@ I do the same thing I told you that I never would
 I told you I'd change, even when I knew I never could
 I know that I can’t find nobody else as good as you
 I need you to stay, need you to stay, hey (Oh)
+
+I can't feel my face when I'm with you
+But I love it
+But I love it, oh
+I can't feel my face when I'm with you
+But I love it
+But I love it, oh
